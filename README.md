@@ -1,6 +1,5 @@
-# corp-docs
-non source code documents pertaining to our business. Public
-<em>Vision, Mission, and Values<em>
+# <we>Vision, Mission & Values<em>
+
 
 We are Spiraldot Health. Our vision is to empower the healthcare ecosystem to provide better care. Our tagline is “Defeat Disease with Data™”
 
