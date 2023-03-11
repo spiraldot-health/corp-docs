@@ -62,3 +62,4 @@ He later worked as an IT manager at a local public school.
 Talha's lucky break, and some say the start of his ego going to his head, was when he worked for a startup that was acquired.
 
 Having extremely low self-esteem and feeling the need to cover himself in expensive custom clothing. Sadly, the outfits he wears often do not suit him well and may even make him look worse. Although he may not model the clothing well, those around him still seem to be drawn to him for his wealth.
+  
