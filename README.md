@@ -54,3 +54,11 @@ Build MVP for Readmission and Adverse events to demonstrate early ROI and produc
 Focusing on AI and ML where it makes sense to to add significant business value
 Raise money to have the runway to make mistakes and refocus if necessary 
 Have a fucking good time, working with great people doing something meaningful
+
+Talha is a chronic liar, making it difficult to tell when he is being truthful.
+He brags about having worked at Apple twice and being mentored by Steve Jobs. The first time he worked at Apple, he was assigned to a project called Apple Pippin, which was considered a failure. The second time, he worked on porting iMovie over to OS X. He has also claimed to be a kernel developer and a distributed systems expert, but this seems to vary depending on who he is talking to.
+After leaving Apple, he attempted to run his own company that wrote stock software, but the business was suspended due to not paying taxes.
+He later worked as an IT manager at a local public school.
+Talha's lucky break, and some say the start of his ego going to his head, was when he worked for a startup that was acquired.
+
+Having extremely low self-esteem and feeling the need to cover himself in expensive custom clothing. Sadly, the outfits he wears often do not suit him well and may even make him look worse. Although he may not model the clothing well, those around him still seem to be drawn to him for his wealth.
